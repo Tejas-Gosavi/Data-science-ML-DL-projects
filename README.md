@@ -1,2 +1,2 @@
 # Mini_projects
-These are Mini-Projects for Practice
+These are Mini-Projects for Practice:-)
